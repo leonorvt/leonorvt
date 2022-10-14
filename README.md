@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @leonorvt
+- 👀 I’m interested in learning how to code, improve my technological skills and enjoying life.
+- 🌱 I’m currently learning korean and french.
